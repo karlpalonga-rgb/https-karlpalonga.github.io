@@ -1,1 +1,0 @@
-# karlpalonga.github.io
